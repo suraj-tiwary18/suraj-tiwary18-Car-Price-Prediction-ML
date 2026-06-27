@@ -132,9 +132,9 @@ Through this project, I learned:
 
 **Suraj Tiwari**
 
-GitHub: https://github.com/YOUR_USERNAME
+GitHub: https://github.com/suraj-tiwary18
 
-LinkedIn: https://www.linkedin.com/in/YOUR_LINKEDIN/
+LinkedIn: https://linkedin.com/in/suraj-tiwari-580984332/
 
 ---
 
